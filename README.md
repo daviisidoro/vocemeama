@@ -1,0 +1,1 @@
+Você me ama G?
